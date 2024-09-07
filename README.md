@@ -1,6 +1,6 @@
 ## Suleiman Najim - Sully
 
-![Profile Image](./sullyproile.png)
+![Profile Image](./githubimahe.jpg)
 
 ## 🔗 Connect with me:
 
