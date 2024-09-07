@@ -4,5 +4,5 @@
 
 ## 🔗 Connect with me:
 
-- 💼 [LinkedIn](https://linkedin.com/in/suleiman-najim)
+- 💼 [LinkedIn](https://www.linkedin.com/in/suleiman-najim-87457a211/)
 - 📧 Email: [sulysalim@hotmail.com](mailto:sulysalim@hotmail.com)
